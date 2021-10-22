@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ToolWay
+- 👀 I’m interested in programming and exploiting on roblox (lmao)
+- 🌱 I’m currently learning more scripting languages
+- 💞️ I’m looking to collaborate on my programming
+- 📫 How to reach me you can DM me on Discord at ToolWay#7324
